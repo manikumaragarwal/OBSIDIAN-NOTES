@@ -1,4 +1,0 @@
----
-id: Neovim buffers
-tags: []
----
