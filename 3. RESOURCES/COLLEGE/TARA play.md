@@ -38,4 +38,6 @@ The family is stuck in the past, we see this through dan's way of writing the pl
 Okay, so This is quote I stole form somewhere.. "you cannot separate Tara's disability from her being female"
 
 
-And who decides what's good for us to hear and what isn't?
+*And who decides what's good for us to hear and what isn't?*
+
+*Whatever it is, if at all it exists, he will tell us himself when he thinks we are good an*
