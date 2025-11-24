@@ -57,3 +57,6 @@ So yes, I think "Tara" can and should be studied as a disability text. But it's 
 Most importantly, I feel like it shows us that **patriarchy is deeply ingrained through the narrative as this force that disables everyone it touches**, some visibly, some invisibly, but all profoundly.
 
 The play uses the vehicle of disability to explore gender discrimination and gender-based violence, proving that in a patriarchal society, you cannot separate a woman's disability from her being female. Tara's mutilated body is not just a medical condition, it is the physical manifestation of a society's violence against its daughters. That's what makes this play so powerful, I think.
+
+
+So yes, I think "tara" can and should be studies as a disability text. But it's a text that expands what we think disability means if that makes sense.
