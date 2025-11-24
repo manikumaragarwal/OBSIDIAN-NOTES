@@ -36,3 +36,6 @@ Multi-stories stage:
 The family is stuck in the past, we see this through dan's way of writing the play. with constant flashbacks. 
 
 Okay, so This is quote I stole form somewhere.. "you cannot separate Tara's disability from her being female"
+
+
+And who decides what's good for us to hear and what isn't?
