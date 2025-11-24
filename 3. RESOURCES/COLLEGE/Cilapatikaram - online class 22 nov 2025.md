@@ -23,3 +23,4 @@ moral philosophy of thirukkural
 # Art, Music and Dance
 Aesthetics (art, music, dance) is merged through. 
 foreshadowing through krishna story. 
+
