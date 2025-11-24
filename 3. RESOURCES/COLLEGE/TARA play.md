@@ -41,3 +41,5 @@ Okay, so This is quote I stole form somewhere.. "you cannot separate Tara's disa
 *And who decides what's good for us to hear and what isn't?*
 
 *Whatever it is, if at all it exists, he will tell us himself when he thinks we are **good and ready***
+
+
