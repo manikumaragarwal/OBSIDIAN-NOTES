@@ -43,4 +43,6 @@ Okay, so This is quote I stole form somewhere.. "you cannot separate Tara's disa
 *Whatever it is, if at all it exists, he will tell us himself when he thinks we are **good and ready***
 
 
-There was this small argument between Tara and Chandan, which gives us some idea about how, Tara might be at her limit! (limit in the sense, she is tired to pretending she is strong, )
+There was this small argument between Tara and Chandan, which gives us some idea about how, Tara might be at her limit! (limit in the sense, she is tired to pretending she is strong all the time!)
+
+Our gratest challenge would be to keep the girl alive, 
