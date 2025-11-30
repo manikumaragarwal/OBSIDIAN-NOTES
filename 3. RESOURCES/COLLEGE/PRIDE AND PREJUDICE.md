@@ -1,2 +1,3 @@
 ## Jane Austen's PERSONAL BACKGROUND
-- Her brother : "Not by "
+- Her Life seems to be composed of series of calm, unexceptional 
+- Her brother : "Not by any means, a life of events"
