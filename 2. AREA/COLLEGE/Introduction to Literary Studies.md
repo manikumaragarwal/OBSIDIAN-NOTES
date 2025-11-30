@@ -1,8 +1,8 @@
-## BOOKS
+## Reading Fiction
 [[PRIDE AND PREJUDICE]]
+## Reading Drama
 [[TARA play]]
-
-## Poems
+## Reading Poetry
 [[341 after great Pain - Emily dickinson]]
 [[On His Blindness - John Milton]]
 [[Composed Upon Westminister Bridge - William Wordsworth]]
