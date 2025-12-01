@@ -13,4 +13,5 @@ Austen focuses on how *Pride* and *First impressions*, leads to *Prejudice*.
 
 
 
-[^1]: Austen focuses on how pri
+[^1]: 
+	Austen focuses on how *Pride* and *First* *Impressions* can lead to *Prejudice*.
