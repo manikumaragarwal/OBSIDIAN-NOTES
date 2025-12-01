@@ -4,4 +4,6 @@
 - "Her life lacked the drama that other writers had in there life", but every person studying Jane Austen knows that, ***The events of her life are secondary to her compelling personality, quick wit, and highly-developed powers of observation***.
 - She published her books anonymously. 
 	- Literary Critic : **Richard Blythe**
-		> "literature, not the literary life, "	
+		> "literature, not the literary life, was always her intention."	
+
+---
