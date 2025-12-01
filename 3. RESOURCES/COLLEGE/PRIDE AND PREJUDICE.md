@@ -8,6 +8,6 @@
 
 ---
 '*Pride and Prejudice*' was Earlier Titled "**First Impressions**"
-
+>  Austen focuses on how *Pride* and *First impressions*, leads to *Prejudice*.
 
 
