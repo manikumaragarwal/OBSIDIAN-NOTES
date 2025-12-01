@@ -20,3 +20,4 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 
 
 # CRITICAL COMMENTARIES
+### Chapter 1-5
