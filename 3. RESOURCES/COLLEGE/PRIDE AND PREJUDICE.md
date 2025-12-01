@@ -21,3 +21,4 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 
 # CRITICAL COMMENTARIES
 ### Chapter 1-5
+1. "Everyone knows that a single rich man is looking for a wife"  is an irony. 
