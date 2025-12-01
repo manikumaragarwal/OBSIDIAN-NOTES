@@ -7,7 +7,10 @@
 		> "literature, not the literary life, was always her intention."	
 
 ---
-'*Pride and Prejudice*' was Earlier Titled "**First Impressions**"
->  Austen focuses on how *Pride* and *First impressions*, leads to *Prejudice*.
+'*Pride and Prejudice*' was Earlier Titled "[^1]**First Impressions**"
+Austen focuses on how *Pride* and *First impressions*, leads to *Prejudice*.
 
 
+
+
+[^1]: Austen focuses on how pri
