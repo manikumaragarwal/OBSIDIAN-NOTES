@@ -25,4 +25,4 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 	- In reality, "Every single rich man knows, he is to be persuaded by women, who want to be his wife".
 2. In a novel, about couple overcoming misunderstandings to achieve a marital status, the first view of marriage is an mismatched couple, who can't communicate.
 	- Mr. and Mrs. Bennet are polar opposites to each other:  Mr. Bennet is a dry witted man, who uses sarcasms throughout the novel, and Mrs. Bennet misses all those mocking tones.
-3. Elizabeth criticises Jane for being blind, that she see's good in other people as a reflection her own heart. 
+3. Elizabeth criticises Jane for being blind, that she see's good in other people as a reflection her own heart. That she should be more careful, and get over people's 
