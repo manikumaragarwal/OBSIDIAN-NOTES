@@ -20,8 +20,7 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 
 
 # CRITICAL COMMENTARIES
-### Chapter 1-5
-IRONY troughout the novel: 
+##### IRONY throughout the novel - 
 1. "Everyone knows that a single rich man is looking for a wife"  is an irony.  
 	- In reality, "Every single rich man knows, he is to be persuaded by women, who want to be his wife".
-2. 
+2. In a novel, about couple overcoming misunderstandings to achieve a marital status, the first married couple in the book have an 
