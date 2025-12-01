@@ -23,4 +23,5 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 ##### IRONY throughout the novel - 
 1. "Everyone knows that a single rich man is looking for a wife"  is an irony.  
 	- In reality, "Every single rich man knows, he is to be persuaded by women, who want to be his wife".
-2. In a novel, about couple overcoming misunderstandings to achieve a marital status, the first married couple in the book have an 
+2. In a novel, about couple overcoming misunderstandings to achieve a marital status, the first view of marriage is an mismatched couple, who can't communicate.
+	- Mr. and Mrs. Bennet are polar opposites to each other:  Mr. Bennet is a dry witted man, who uses sarcasms 
