@@ -11,7 +11,9 @@
 Austen focuses on how *Pride* and *First impressions*, leads to *Prejudice*.
 
 
-Austen consciously restricts her Subject matter to a sphere of 
+Austen consciously restricts her Subject matter to a sphere of few families of relatives with her friend and acquaintances.
+
+
 
 
 
