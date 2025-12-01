@@ -7,4 +7,7 @@
 		> "literature, not the literary life, was always her intention."	
 
 ---
-Pride and Prejudice was 
+'*Pride and Prejudice*' was Earlier Titled "**First Impressions**"
+
+
+
