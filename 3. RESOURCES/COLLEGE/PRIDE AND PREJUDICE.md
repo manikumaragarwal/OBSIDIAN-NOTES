@@ -27,4 +27,8 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 	- Mr. and Mrs. Bennet are polar opposites to each other:  Mr. Bennet is a dry witted man, who uses sarcasms throughout the novel, and Mrs. Bennet misses all those mocking tones.
 3. Elizabeth criticises Jane for being blind, that she see's good in other people as a reflection her own heart. That she should be more careful.
 	- It's ironic how Elizabeth is herself blinded by appearances, and prejudice.
-4
+
+
+
+
+### How Elizabeth is an exception from the women in her times
