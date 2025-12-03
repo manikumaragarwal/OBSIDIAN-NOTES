@@ -35,4 +35,5 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 1. Elizabeth is quick witted, confident, and intelligent.
 	- during her times, girl were a little introverted, less spoken. but Elizabeth is sharp with her words, she is quick witted, and she knows how to defend herself in a conversation.
 2. Elizabeth enjoys physical activity, especially walking.
-	- when Elizabeth easily walks 3 miles to visit her sick sister, caroline bingley's snide response 
+	- when Elizabeth easily walks 3 miles to visit her sick sister, caroline bingley's snide response shows that this behaviour was not common amoung gentlewomen of her time.
+3. 
