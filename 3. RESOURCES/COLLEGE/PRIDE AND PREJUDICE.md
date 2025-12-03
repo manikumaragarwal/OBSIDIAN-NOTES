@@ -32,4 +32,5 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 
 
 ### Elizabeth is an exception from the women in her times
-1. 
+1. Elizabeth is quick witted, confident, and intelligent.
+	- during her times, girl were a little introverted, less spoken. but Elizabeth is sharp with her 
