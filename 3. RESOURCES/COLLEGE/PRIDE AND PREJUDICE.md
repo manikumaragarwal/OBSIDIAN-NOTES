@@ -31,4 +31,5 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 
 
 
-### How Elizabeth is an exception from the women in her times
+### Elizabeth is an exception from the women in her times
+1. 
