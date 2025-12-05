@@ -37,3 +37,9 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 2. Elizabeth enjoys physical activity, especially walking.
 	- when Elizabeth easily walks 3 miles to visit her sick sister, caroline bingley's snide response shows that this behaviour was not common amoung gentlewomen of her time.
 3. 
+
+
+
+
+
+[[QUESTION BANK - SEM 1]]
