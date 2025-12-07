@@ -10,4 +10,4 @@
 
 
 # STUDY GUIDE 
-[[]]
+[[STUDY GUIDE - Introduction to Literary Studies]]
