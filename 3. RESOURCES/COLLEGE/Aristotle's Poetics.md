@@ -35,4 +35,9 @@ Compelling stories should have scenes with clear **Cause** and **Effects** betwe
 - **Episodic**: The world aristotle uses, for stories which doesn't have causality.
 
 ### Unity of Action
-Story should rev
+Story should revolve around a single Drive. 
+-  Unity of Action does not.. consist in the unity of hero,   For infinitely various are the incidents in one man's life which cannot be reduced to unity.
+
+
+
+
