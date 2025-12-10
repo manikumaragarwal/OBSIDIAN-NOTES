@@ -13,12 +13,11 @@ Six priciples of Poetics:
 3. Diction
 4. Spectacle
 5. Song
-6. Plot (> [!IMPORTANT]
-   > )
+6. Plot 
    - A good plot has - Begining Middle End.
 
-- Begining : Rising Action (Complication)
-- End : Falling Action (unraveling or Denouement)
+- Begining : **Rising Action** (Complication)
+- End : **Falling Action** (unraveling or Denouement)
 
 3 Tragic Beats :
 
