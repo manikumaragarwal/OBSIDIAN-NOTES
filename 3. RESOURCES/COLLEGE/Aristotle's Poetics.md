@@ -23,3 +23,6 @@ Six priciples of Poetics:
 1. **Peripeteia** : A sudden reversal of fortune.
 2. **Anagnorisis** : When a character makes a critical discovery.
 3. **Catharsis** : The emotional relief in an audience.
+
+
+### Causality
