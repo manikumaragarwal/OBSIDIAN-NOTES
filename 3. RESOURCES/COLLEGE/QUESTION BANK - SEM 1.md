@@ -24,6 +24,7 @@
 2. [[The writer's engagement with a specific form of writing often involves a dialogue with the works of other writers in that genre. Do you agree? Illustrate with the help of any one text.]]
 
 #### On his Blindness
+1. Central Idea of the Poem.
 #### Composed upon Westminister Bridge
 1. This city now doth, like a garment, wear 
    The beauty of the morning; silent, bare,
@@ -31,7 +32,6 @@
    Open upon the fields, and to the sky...
    [[Identify the above lives, and comment on the poet's use of meter and rhyme, in the poem, in accordance with its form]]
 2. 
-#### W
 #### 341 After Great Pain
 1. [[To what extent, in your opinion, can poems yield a sigular or fixed meaning? Discuss, through a critical analysis of the poem by Emily Dickinson, in your syllabus.]]
 #### Where the mind is without Fear - RAVINDRANATH TAGORE.
