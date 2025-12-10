@@ -33,7 +33,7 @@
 2. 
 #### 341 After Great Pain
 1. [[To what extent, in your opinion, can poems yield a sigular or fixed meaning? Discuss, through a critical analysis of the poem by Emily Dickinson, in your syllabus.]]
-#### Where the mind is without Fear
+#### Where the mind is without Fear - RAVINDRANATH TAGORE.
 1. [[What is the significance of historical/political context in the process of interpreting a poem? Discuss with reference to Tagore's poem,, "where the mind is without fear"]]
 2. 
 #### Versification and Poetic Syntax
