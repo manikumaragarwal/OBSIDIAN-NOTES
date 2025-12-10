@@ -37,7 +37,8 @@ Compelling stories should have scenes with clear **Cause** and **Effects** betwe
 ### Unity of Action
 Story should revolve around a single Drive. 
 -  Unity of Action does not.. consist in the unity of hero,   For infinitely various are the incidents in one man's life which cannot be reduced to unity.
-	- 	
+	- Every character can have multiple roles, but sticking to one of these goals, is crucial to a good story.
+- 
 
 
 
