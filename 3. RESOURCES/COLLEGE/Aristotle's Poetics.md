@@ -30,4 +30,6 @@ Compelling stories should have scenes with clear **Cause** and **Effects** betwe
 
 - Each plot point builds on top of another, untill the ultimate climax.
 [[Three Act Structure]]
+- If any one scene is displayed or removed, the whole would be disjointed and Disturbed. 
+- For a thing whose presence or absence makes no visible difference, is not an organic part of the whole.
 
