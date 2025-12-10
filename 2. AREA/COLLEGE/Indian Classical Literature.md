@@ -7,3 +7,4 @@
 --- 
 
 
+Socio-political forces shape hte seemingly insecular world of gentry in pride and prejudice. discuss.
