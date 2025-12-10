@@ -26,3 +26,6 @@ Six priciples of Poetics:
 
 
 ### Causality
+Compelling stories should have scenes with clear **Cause** and **Effects** between each other.
+
+- Each plot point builds on top of another
