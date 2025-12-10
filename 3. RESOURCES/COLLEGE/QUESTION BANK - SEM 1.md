@@ -1,7 +1,9 @@
 # Introduction to Literature Studies (ILS)
 #### PRIDE AND PREJUDICE
 1. [[Critically comment on the description of Pemberly estate and the way it impacts Elizabeth's perception of Darcy, in Austen's Pride and Prejudice]]
+
 2. [[In what ways does the novel functions as the space for the delineation of an 'accomplished' woman in Pride and Prejudice? Discuss with refrence to any three women characters.]]
+
 3. [[The ironic representation of some of the characters does not distract from the force of Austen's social critique. Discuss with reference to the text.]]
 #### Narratology:  Form and Function of  Narrative  
 1. [[How does Gerald J. Price gorup the collection of signs that constitute a narrative? Describe briefly.]] 
