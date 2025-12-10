@@ -8,12 +8,12 @@ Poetics had two parts - Tragedy and Comedy. (the Comedy part is lost.)
 
 Six priciples of Poetics:
 
-1. Character
-2. Thought
-3. Diction
-4. Spectacle
-5. Song
-6. Plot (most Important)
+1. Plot (most Important)
+2. Character
+3. Thought
+4. Diction
+5. Spectacle
+6. Song
 
 # PLOT
 
