@@ -12,7 +12,9 @@
 
 #### TARA
 1. [[Discuss the way societal lack of empathy is represented in the character of Roopa in Mahesh Dattani's Tara.]]
-2. [[The stage is optimally used in Dattani's Tara. Discuss the stylistics and design of the stat]]
+
+2. [[The stage is optimally used in Dattani's Tara. Discuss the stylistics and design of the stage]]
+	- Stream of consciousness.
 #### The Nature of Drama 
 1. [[Write a short note on Watson's "The Nature of Drama"]]
 #### It Must Flow : A life in Theatre
