@@ -33,3 +33,6 @@ Compelling stories should have scenes with clear **Cause** and **Effects** betwe
 - If any one scene is displayed or removed, the whole would be disjointed and Disturbed. 
 - For a thing whose presence or absence makes no visible difference, is not an organic part of the whole.
 - **Episodic**: The world aristotle uses, for stories which doesn't have causality.
+
+### Unity of Action
+Story should rev
