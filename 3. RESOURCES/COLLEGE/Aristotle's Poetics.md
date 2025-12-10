@@ -16,11 +16,10 @@ Six priciples of Poetics:
 6. Plot 
    - A good plot has - Begining Middle End.
 
-- Beggining : **Rising Action** (Complication)
+- Begining : **Rising Action** (Complication)
 - End : **Falling Action** (unravelling or Denouement)
 
-3 Tragic Beats :
-
-1. **[[Peripeteia]]** : A sudden reversal of fortune.
+[[3 Tragic Beats]] :
+1. **Peripeteia** : A sudden reversal of fortune.
 2. **Anagnorisis** : When a character makes a critical discovery.
 3. **Catharsis** : The emotional relief in an audience.
