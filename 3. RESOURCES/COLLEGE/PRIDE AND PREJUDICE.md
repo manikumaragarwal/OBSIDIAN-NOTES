@@ -52,8 +52,13 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 
 **PARTIES** : 
 1. fortnightly 
-2. Luca's place
-3. 
+2. Lucas lodge (Charolette's father)
+3. Meryten ball 
+
+**INCOME** : 
+1. Bingley : 5000 a year
+2. Darcy : 10000+ a year
+
 
 
 
