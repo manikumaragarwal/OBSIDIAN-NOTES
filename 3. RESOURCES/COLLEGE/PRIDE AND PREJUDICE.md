@@ -82,5 +82,4 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 		- notions => **accomplishments** of womens. 
 
 - TYPES OF IRONY
-	1.  
-
+	1. 
