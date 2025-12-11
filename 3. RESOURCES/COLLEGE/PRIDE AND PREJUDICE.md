@@ -72,4 +72,6 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 ## MOST LIKELY ASKED QUETIOSN : 
 1. What are the themes of marriage? ans which marriage is considered best by austen. 
 	- Philosophy of Austen's on marriage :  **Psychological igalitarian marriage**  (compatibility)
-	- 
+- TYPES OF MARRIAGE :
+	1. Mr. and Mrs. Bennet. => Marriage based on crush or infat (mrs bennet is dumb, mr. bennet spends most time in library)
+	2. 
