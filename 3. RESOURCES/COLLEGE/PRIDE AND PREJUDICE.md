@@ -71,4 +71,5 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 
 ## MOST LIKELY ASKED QUETIOSN : 
 1. What are the themes of marriage? ans which marriage is considered best by austen. 
-	- Philosophy of Austen's on marriage :  Psychological 
+	- Philosophy of Austen's on marriage :  **Psychological igalitarian marriage**  (compatibility)
+	- 
