@@ -50,7 +50,10 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 - Bingley : I don't understand why you go through world, displeased with everyone in it
 - Darcy : And I don't understand why are you in such a hurry to approve of everything and everyone you meet
 
-
+**PARTIES** : 
+1. fortnightly 
+2. Luca's place
+3. 
 
 
 
