@@ -59,7 +59,8 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 1. Bingley : 5000 a year
 2. Darcy : 10000+ a year
 
-- Charolette: happiness in marriage is entirely a matter of chance, 
+- Charolette: **Happiness in marriage is entirely a matter of chance**.   (there will always be vexation and grief.) and *it is better to know all the defects of your partner as soon as possible*.
+
 
 
 
