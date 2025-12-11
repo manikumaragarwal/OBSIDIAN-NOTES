@@ -47,7 +47,8 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 4. Lydia
 5. 
 
-
+Bingley : I don't understand why you go through world, dispeased with everyone in it
+Darcy : And I don't understand why are you in such a hurry to 
 
 
 
