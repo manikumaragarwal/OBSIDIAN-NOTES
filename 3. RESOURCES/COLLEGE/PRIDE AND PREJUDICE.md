@@ -40,7 +40,11 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 
 
 ### IMPORTANT QUOTES : 
-
+**5 Bennet sisters**
+1. Jane
+2. Elizabeth
+3. Mary
+4. Lyd
 
 
 
