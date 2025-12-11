@@ -77,4 +77,5 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 	2. *Charolette and Collins* => **married because teh conventional parameters were met**. => charolette says, she's not interested in the romantic idea of marriage.
 	3. *Lydia and Wikham* => **she was very haste.** (she elopes)
 	4. *Jane and Bingley* => they attracted to each other (both partner's are not compatible becuase htey can't express their emotions property,   Bingley leaves her on someone else's words. )
-	5. *Elizabeth and Darcey* => BEST MARRIAGE => conve
+	5. *Elizabeth and Darcey* => BEST MARRIAGE => 
+		- Lizzy not governed by conventional notion
