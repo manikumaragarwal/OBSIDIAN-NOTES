@@ -80,3 +80,6 @@ Austen consciously restricts her Subject matter to a sphere of few families of r
 	5. *Elizabeth and Darcey* => BEST MARRIAGE => 
 		- Lizzy not governed by conventional notion. (==subordination of women==)
 		- notions => **accomplishments** of womens. 
+
+- TYPES OF IRONY
+	1.  
