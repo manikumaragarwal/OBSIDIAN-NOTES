@@ -7,4 +7,5 @@
 	- **Aristotle** : "*an epic is a poem about men in action.*"
 	- **Ezra Pound** (*modern poet & scholar of classical tradition) : "*a poem containing history*"
 		- history : history of tradition and culture
-	
+
+	- Theme of Odyssey : "Homecoming"
