@@ -4,5 +4,5 @@
 
 # THE EPIC FORM 
 - Definition of EPIC 
-	- Aristotle : "*an epic is a poem about men in action.*"
-	- Ezra Pound (**modern poet & scholar of classical tradition) : "*a poem containing history*"
+	- **Aristotle** : "*an epic is a poem about men in action.*"
+	- **Ezra Pound** (*modern poet & scholar of classical tradition) : "*a poem containing history*"
