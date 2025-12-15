@@ -14,3 +14,5 @@
 	- grandeur & seriousness
 	- heroic events
 	- make us belief in the human heroic potential
+	- range , spread, scope
+- 
