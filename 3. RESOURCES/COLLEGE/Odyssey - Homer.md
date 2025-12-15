@@ -3,3 +3,5 @@
 
 
 # THE EPIC FORM 
+- Definition of EPIC 
+	- Aristotle : 
