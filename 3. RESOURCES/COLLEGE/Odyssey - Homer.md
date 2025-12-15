@@ -9,3 +9,5 @@
 		- history : history of tradition and culture
 
 	- Theme of Odyssey : "Homecoming"
+- Elements of an EPIC : 
+	- 
