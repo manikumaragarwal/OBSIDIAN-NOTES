@@ -10,4 +10,7 @@
 
 	- Theme of Odyssey : "Homecoming"
 - Elements of an EPIC : 
+	- considerable length
+	- grandeur & seriousness
+	- heroic events
 	- 
