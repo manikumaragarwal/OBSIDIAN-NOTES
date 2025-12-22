@@ -45,7 +45,10 @@
 6. In "the temptation of Karna," Karna's character emerges as an upholder of Dharma, Discuss.
 7. If arjun is the conventional hero of hte epic, Karna is a tragic hero. Discuss.
 8. Discuss the relevance of the Rajsuya Yajna in *The Mahabharata*
-9. Write a short note on Krishna as a upholder of Dharma in the epic *Mahabha*
+9. Write a short note on Krishna as a upholder of Dharma in the epic *Mahabharata*
+10. Identify the speaker and hte context and comment critically on the following lines : 
+    "This man knows the dice, King, and he is able to take the fortune of the pandava in a game. Pray allow it."
+11. 
 #### Abhigyan Shakuntalam 
 1. Discuss the significance of the ring and the curse in Kalidasa's *Abhijanana Sakuntalam*
 2. Discuss the attributes of hte ideal king as emerges from *Abhijanana shakuntalam*
