@@ -36,3 +36,4 @@
 
 
 ### EXAM PREP
+1. Draupadi is often seen as "Nathabati Anathabath" or "Five lords", Yet none a "Protector". Discuss.
