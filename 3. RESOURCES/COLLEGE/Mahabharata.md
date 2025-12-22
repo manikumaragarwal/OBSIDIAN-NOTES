@@ -38,7 +38,7 @@
 ### EXAM PREP
 #### MAHABHARATA
 1. [[Draupadi is often seen as "Nathabati Anathabath" or "Five lords", Yet none a "Protector". Discuss.]]
-2. In what ways does the Dicing episode provide a critique of hte heroic ideal in the Mahabharata? 
+2. [[In what ways does the Dicing episode provide a critique of the heroic ideal in the Mahabharata? ]]
 3. Write a short note on the significance of Krisha's peace proposal with refrence to the Udyog Parva of the Mahabharata.
 4. Write a short note on Karna's character based on teh prescribed sections in *The Mahabharata*
 5. Write a short note on the character of sakuni with special refrence to his role in teh game of dice.
