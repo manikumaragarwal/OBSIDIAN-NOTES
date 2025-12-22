@@ -40,7 +40,7 @@
 1. [[Draupadi is often seen as "Nathabati Anathabath" or "Five lords", Yet none a "Protector". Discuss.]]
 2. [[In what ways does the Dicing episode provide a critique of the heroic ideal in the Mahabharata? ]]
 3. [[Write a short note on the significance of Krisha's peace proposal with refrence to the Udyog Parva of the Mahabharata.]]
-4. Write a short note on Karna's character based on teh prescribed sections in *The Mahabharata*
+4. [[Write a short note on Karna's character based on teh prescribed sections in *The Mahabharata*]]
 5. Write a short note on the character of sakuni with special refrence to his role in teh game of dice.
 6. In "the temptation of Karna," Karna's character emerges as an upholder of Dharma, Discuss.
 7. If arjun is the conventional hero of hte epic, Karna is a tragic hero. Discuss.
