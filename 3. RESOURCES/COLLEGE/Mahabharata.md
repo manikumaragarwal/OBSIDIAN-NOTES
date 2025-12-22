@@ -49,6 +49,6 @@
 2. Discuss the attributes of hte ideal king as emerges from *Abhijanana shakuntalam*
 3. Critically examine Dushanta's first encounter with Sakuntala in Abhijana Sakuntalam.
 4. Write a short note on the role of priyamvada in *abhiana shakuntalam*
-5. 
+5. Show how to *Abhijana sakuntalam*, sakuntala finds in priyamvada and anasuya her pillars of support.
 #### cilapattikaram
-1. 
+1. What is the impact of the absense of Kannaki's direct speaking voice in "*The Book of Vsa*"
