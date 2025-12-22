@@ -57,7 +57,8 @@
 5. Show how to *Abhijana sakuntalam*, sakuntala finds in priyamvada and anasuya her pillars of support.
 6. Critically comment on the narrative structure of the play *Abhijanansakuntalam*
 7. Bring out hte concern and anxieties of King Dusyanta regarding Sakuntala's parentage in act 1. Does the play reflect a simliar process in his queries about Sarva-Damana in Act 7 ? 
-8. 
+8. **Write a short note on the characters of Priyamvada and Anasuya in Kalidasa's play.**
+9. Identify the speaker, and the context and comment critically
 #### cilapattikaram
 1. What is the impact of the absense of Kannaki's direct speaking voice in "*The Book of Vanci*" ?
 2. Comment ont heprocess of significance of hte deification of Kannaki as a goddess in the Book of vanci.
