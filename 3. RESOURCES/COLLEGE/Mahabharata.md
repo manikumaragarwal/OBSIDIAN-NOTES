@@ -53,4 +53,10 @@
 #### cilapattikaram
 1. What is the impact of the absense of Kannaki's direct speaking voice in "*The Book of Vanci*" ?
 2. Comment ont heprocess of significance of hte deification of Kannaki as a goddess in the Book of vanci.
-3. Examine hte key features of hte classical sakrti drama with refrence to at least one precribed text. 
+
+
+
+
+#### OVERALL
+1. Examine hte key features of hte classical sakrti drama with refrence to at least one precribed text. 
+2. Comment on the theme of Justice in any of the Texts studied by you as part of this course.
