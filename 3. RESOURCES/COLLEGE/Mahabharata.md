@@ -41,4 +41,7 @@
 2. In what ways does the Dicing episode provide a critique of hte heroic ideal in the Mahabharata? 
 
 #### Abhigyan Shakuntalam 
-#### cilapat
+1. Discuss the significance of the ring and the curse in Kalidasa's *Abhijanana Sakuntalam*
+2. Discuss the attributes of hte ideal king as emerges from *Abhijanana shakuntalam*
+#### cilapattikaram
+1. 
