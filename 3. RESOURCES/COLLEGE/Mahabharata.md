@@ -43,7 +43,9 @@
 4. Write a short note on Karna's character based on teh prescribed sections in *The Mahabharata*
 5. Write a short note on the character of sakuni with special refrence to his role in teh game of dice.
 6. In "the temptation of Karna," Karna's character emerges as an upholder of Dharma, Discuss.
-7. 
+7. If arjun is the conventional hero of hte epic, Karna is a tragic hero. Discuss.
+8. Discuss the relevance of the Rajsuya Yajna in *The Mahabharata*
+9. Critically comment on the narrative struct
 #### Abhigyan Shakuntalam 
 1. Discuss the significance of the ring and the curse in Kalidasa's *Abhijanana Sakuntalam*
 2. Discuss the attributes of hte ideal king as emerges from *Abhijanana shakuntalam*
