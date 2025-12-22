@@ -36,4 +36,9 @@
 
 
 ### EXAM PREP
+#### MAHABHARATA
 1. Draupadi is often seen as "Nathabati Anathabath" or "Five lords", Yet none a "Protector". Discuss.
+2. In what ways does the Dicing episode provide a critique of hte heroic ideal in the Mahabharata? 
+
+#### Abhigyan Shakuntalam 
+#### cilapat
