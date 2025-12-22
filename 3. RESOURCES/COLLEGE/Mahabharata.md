@@ -42,7 +42,8 @@
 3. Write a short note on the significance of Krisha's peace proposal with refrence to the Udyog Parva of the Mahabharata.
 4. Write a short note on Karna's character based on teh prescribed sections in *The Mahabharata*
 5. Write a short note on the character of sakuni with special refrence to his role in teh game of dice.
-6. In "the temptation of Karna," Karna's character emerges as an upholder of Dharma
+6. In "the temptation of Karna," Karna's character emerges as an upholder of Dharma, Discuss.
+7. 
 #### Abhigyan Shakuntalam 
 1. Discuss the significance of the ring and the curse in Kalidasa's *Abhijanana Sakuntalam*
 2. Discuss the attributes of hte ideal king as emerges from *Abhijanana shakuntalam*
