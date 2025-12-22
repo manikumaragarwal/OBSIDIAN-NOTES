@@ -48,7 +48,7 @@
 9. Write a short note on Krishna as a upholder of Dharma in the epic *Mahabharata*
 10. Identify the speaker and hte context and comment critically on the following lines : 
     "This man knows the dice, King, and he is able to take the fortune of the pandava in a game. Pray allow it."
-11. 
+11. Draupadi's questions during hte game of Dice make the reader aware of the complex interplay of 
 #### Abhigyan Shakuntalam 
 1. Discuss the significance of the ring and the curse in Kalidasa's *Abhijanana Sakuntalam*
 2. Discuss the attributes of hte ideal king as emerges from *Abhijanana shakuntalam*
@@ -59,10 +59,13 @@
 7. Bring out hte concern and anxieties of King Dusyanta regarding Sakuntala's parentage in act 1. Does the play reflect a simliar process in his queries about Sarva-Damana in Act 7 ? 
 8. **Write a short note on the characters of Priyamvada and Anasuya in Kalidasa's play.**
 9. Identify the speaker, and the context and comment critically on the follwoing lines : 
-   "It is just such women, selfish, sweet "
+   "It is just such women, selfish, sweet, false, that entice fools"
+10. 
 #### cilapattikaram
 1. What is the impact of the absense of Kannaki's direct speaking voice in "*The Book of Vanci*" ?
 2. Comment ont heprocess of significance of hte deification of Kannaki as a goddess in the Book of vanci.
+3. Critically comment on the notoin of justice as portrayed in "The book of Vanci"
+
 
 
 
