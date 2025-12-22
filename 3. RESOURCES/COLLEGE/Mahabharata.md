@@ -43,7 +43,7 @@
 4. [[Write a short note on Karna's character based on teh prescribed sections in *The Mahabharata*]]
 5. [[Write a short note on the character of sakuni with special refrence to his role in teh game of dice.]]
 6. In "the temptation of Karna," Karna's character emerges as an upholder of Dharma, Discuss.
-7. If arjun is the conventional hero of hte epic, Karna is a tragic hero. Discuss.
+7. If arjun is the conventional hero of the epic, Karna is a tragic hero. Discuss.
 8. Discuss the relevance of the Rajsuya Yajna in *The Mahabharata*
 9. Write a short note on Krishna as a upholder of Dharma in the epic *Mahabharata*
 10. Identify the speaker and hte context and comment critically on the following lines : 
