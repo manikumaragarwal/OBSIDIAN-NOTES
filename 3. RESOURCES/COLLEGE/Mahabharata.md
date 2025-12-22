@@ -45,7 +45,7 @@
 6. In "the temptation of Karna," Karna's character emerges as an upholder of Dharma, Discuss.
 7. If arjun is the conventional hero of hte epic, Karna is a tragic hero. Discuss.
 8. Discuss the relevance of the Rajsuya Yajna in *The Mahabharata*
-9. 
+9. Write a short note on Krishna as a upholder of Dharma in the epic *Mahabha*
 #### Abhigyan Shakuntalam 
 1. Discuss the significance of the ring and the curse in Kalidasa's *Abhijanana Sakuntalam*
 2. Discuss the attributes of hte ideal king as emerges from *Abhijanana shakuntalam*
@@ -53,7 +53,8 @@
 4. Write a short note on the role of priyamvada in *abhiana shakuntalam*
 5. Show how to *Abhijana sakuntalam*, sakuntala finds in priyamvada and anasuya her pillars of support.
 6. Critically comment on the narrative structure of the play *Abhijanansakuntalam*
-7. 
+7. Bring out hte concern and anxieties of King Dusyanta regarding Sakuntala's parentage in act 1. Does the play reflect a simliar process in his queries about Sarva-Damana in Act 7 ? 
+8. 
 #### cilapattikaram
 1. What is the impact of the absense of Kannaki's direct speaking voice in "*The Book of Vanci*" ?
 2. Comment ont heprocess of significance of hte deification of Kannaki as a goddess in the Book of vanci.
