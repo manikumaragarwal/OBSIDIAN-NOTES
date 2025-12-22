@@ -50,7 +50,7 @@
     "This man knows the dice, King, and he is able to take the fortune of the pandava in a game. Pray allow it."
 11. Draupadi's questions during hte game of Dice make the reader aware of the complex interplay of dhrama, women's rights and position of women in a Kshatriya dominated world. Discuss.
 12. Write a short note on the character of Sakuni, with special refrence to his role in the game of dice. 
-13. **In "the temptation of karna", Karn'as character emerges as an upholder of Dharma, Discuss.**
+13. [[**In "the temptation of karna", Karn'as character emerges as an upholder of Dharma, Discuss.**]]
 #### Abhigyan Shakuntalam 
 1. Discuss the significance of the ring and the curse in Kalidasa's *Abhijanana Sakuntalam*
 2. Discuss the attributes of hte ideal king as emerges from *Abhijanana shakuntalam*
