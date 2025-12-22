@@ -23,3 +23,16 @@
 ###### - Write significance of Draupadi's Question in Dicing. (Did Yudishthira loose himself first or me First)
 
 ###### - Critically Comment of Karna's Temptation.
+
+
+
+
+
+
+
+
+
+
+
+
+### EXAM PREP
