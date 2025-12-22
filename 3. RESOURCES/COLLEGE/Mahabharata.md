@@ -60,3 +60,4 @@
 #### OVERALL
 1. Examine hte key features of hte classical sakrti drama with refrence to at least one precribed text. 
 2. Comment on the theme of Justice in any of the Texts studied by you as part of this course.
+3. Identify the speaker, and the context and comment critically on the following lines : "threough my error, I have failed to protect hte people of hte southern kingdom."
