@@ -51,4 +51,6 @@
 4. Write a short note on the role of priyamvada in *abhiana shakuntalam*
 5. Show how to *Abhijana sakuntalam*, sakuntala finds in priyamvada and anasuya her pillars of support.
 #### cilapattikaram
-1. What is the impact of the absense of Kannaki's direct speaking voice in "*The Book of Vsa*"
+1. What is the impact of the absense of Kannaki's direct speaking voice in "*The Book of Vanci*" ?
+2. Comment ont heprocess of significance of hte deification of Kannaki as a goddess in the Book of vanci.
+3. Examine hte key features of hte classical sakrti drama with refrence to at least one precribed text. 
