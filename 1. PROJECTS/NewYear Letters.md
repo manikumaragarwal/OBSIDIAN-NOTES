@@ -4,4 +4,3 @@
 4. [[Jerry's New Year Letter]]
 5. [[Rutba's New Year Letter]]
 6. [[Saksham's New Year Letter]]
-
